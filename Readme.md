@@ -1,1 +1,1 @@
-Hey, Welcome to the Session.
+Hey, Welcome to the Sunday Session.
